@@ -6,6 +6,7 @@ Hi,this is Anukul and i just started working on github and the experience is rea
 ---
 * I love coding.
 * I am a big fan of batman(LOL)
-To be Friend with me click this link, I am very friendly.
+To be Friend with me click this link:
+
 
 A[https://www.facebook.com/anukul.chand]
